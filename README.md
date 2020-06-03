@@ -1,2 +1,0 @@
-mothers pride academy
-bishnupur
