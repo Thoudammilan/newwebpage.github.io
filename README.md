@@ -1,2 +1,1 @@
-# newwebpage.github.io
-new web page
+mothers pride academy
